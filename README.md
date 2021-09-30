@@ -9,4 +9,4 @@ Basketball inhabits some of the greatest athletes of all time. ***Michael Jordan
 #### In the end....
 Basketball will forever be part of my life. It is a sport that will never go away and continue to develop throughout the years. It is one sport that will continue to benefit society and lift them to greater heights. But it all has to start on the court with the rock in your hands. 
 !["The Rock"](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT--BEPzRNsWS640MEKRAhJZLYGMBFRkt4SDA&usqp=CAU)
-[link](https://www.nba.com/)
+[CLCICK HERE](https://www.nba.com/)
